@@ -1,4 +1,5 @@
 # Hormones Allow Farmers to Meet Consumer Demands
+  this is a persuasive document and educational...get the audience to eat non organic foods because both types are healthy
 
 ## Introduction
 
@@ -7,6 +8,9 @@
 ## Hormones in Dairy Cattle
 
 ## Hormones in Poultry
+
+# Call to Action
+  Read this... do this... eat this... what do you want your audience to do? 
 
 ## Sources
 
