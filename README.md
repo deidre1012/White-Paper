@@ -1,5 +1,5 @@
 # Hormones Allow Farmers to Meet Consumer Demands
-  this is a persuasive document and educational...get the audience to eat non organic foods because both types are healthy
+  this is a persuasive document and educational...get the audience to understand that organic raised food and conventional raised is all equally healthy... Audience is nutritionalist, people who are unware of the differences, and animal activists. 
 
 ## Introduction
 
