@@ -8,7 +8,8 @@ What is something you would like to see?
 
 ## Introduction
 
-Health is a constant study in today's society. Health has become a highly debated and discussed topic because of an increase in human obesity. What people eat, what exercises are the best, and what is the latest dieting techniques are several of the constant ways people try to stay "healthy." What does healthy mean? Based on the Oxford dictionary healthy is defined as a body with none diseased cells, of healthy size, and fit. In order to stay healthy the number one focus is what humans consume. One of the leading controversies today within the food industry are the additives in the food. For example, hormones in meats has been a widely debated topic for years. However, despite the arguments of artificial hormones added to meats in order to increase growth have been greatly exaggerated. Based on the standards of the FDA, Food and Drug Administration, foods have multiple regulations that must be passed in order for the products to make it from the farm to the grocery store. No artificial hormones are added to animals that are harmful for human consumption. The only hormones added are the natural hormones that already exist within the animals that assist in growth progress (FDA, 2017). Throughout my following posts I will discuss different types of food such as meats, dairy, and produce to prove that the process of foods at the farm level are in the best interest of the consumer.
+Farmers are consistantly faced with new challenges and protocols each year from government agencies.
+The only hormones added are the natural hormones that already exist within the animals that assist in growth progress (FDA, 2017)
 
 ## Hormones in Beef Cattle
 
